@@ -1,3 +1,4 @@
 # Team-Building-VungTau
 Chào mừng các bạn đến với chuyến đi Vũng Tàu 3 ngày 2 đêm của cửa hàng The Pizza Company Hậu Giang. Đến với hoạt động team building lần này sẽ giúp nâng cao tinh thần đoàn kết, cải thiện mối quan hệ giữa các thành viên của gia đình TPC HG và thúc đẩy hiệu suất làm việc của các bạn. Mục tiêu của chuyến đi team building sẽ tạo sự gắn kết giữa các nhân viên và quản lý của cửa hàng, khám phá và phát triển kĩ năng cá nhân và tập thể, thúc đẩy tinh thần sáng tạo và làm việc nhóm.
 ![Hình ảnh minh họa](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ivivu.com%2Fblog%2F2019%2F10%2Fbat-mi-10-dia-diem-song-ao-o-vung-tau-dep-khong-goc-chet%2F&psig=AOvVaw0-s1vuz9TFAxADKDpicHGN&ust=1697792074725000&source=images&cd=vfe&opi=89978449&ved=0CBEQjRxqFwoTCKiQvsDegYIDFQAAAAAdAAAAABAE)
+![rs](https://github.com/tc0598/Team-Building-VungTau/assets/147702326/6899105f-7167-463e-83e9-113f5c3c8a13)
